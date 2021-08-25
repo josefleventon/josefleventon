@@ -1,1 +1,1 @@
-![Josef Leventon](https://res.cloudinary.com/drf4qah2a/image/upload/v1619701512/josefleventon-josefleventon-dark-2_arkogo.png)
+![Josef Leventon](https://i.ibb.co/Px33DtM/IMG-0023.png)
